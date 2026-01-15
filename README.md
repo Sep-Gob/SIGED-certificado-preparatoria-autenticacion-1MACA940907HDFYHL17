@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-1MACA940907HDFYHL17
+MACA940907HDFYHL17
